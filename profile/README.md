@@ -4,6 +4,8 @@
 
 Get ready for an **epic gravity-defying experience** with **Slope Run Online** – the **ultimate 3D arcade runner** that will test your reflexes, focus, and courage. Whether you're dodging deadly drops or blazing through glowing tunnels at **hyper speed**, this game promises an **insane adrenaline rush** with every run.
 
+## <a href="https://1kb.link/aPDzpW">👉 Play Slope Unblocked Games 76 👈</a>
+
 ---
 
 ### **Game Genre & Theme**
